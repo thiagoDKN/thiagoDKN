@@ -9,9 +9,7 @@
 
 _partiu um churras_ 🔥
 
-palavras de Rengoku 
-
-https://www.youtube.com/watch?v=OZQh9XqEXuA
+[_palavras de Rengoku_](https://www.youtube.com/watch?v=OZQh9XqEXuA)
 <!--
 **thiagoDKN/thiagoDKN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
