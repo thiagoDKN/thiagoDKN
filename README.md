@@ -5,9 +5,15 @@
 - é um trabalho de escola
 - se vai dar certo eu não sei
 
+_partiu um churras_ 🔥
+
 ![](https://media.tenor.com/kEG4ssXpTZUAAAAC/odeio-pobre-rengoku.gif)
 
-_partiu um churras_ 🔥
+**vegano no churras não!!**
+
+![](https://media.tenor.com/k4_iPx8bCU4AAAAC/demon-slayer-kimetsu-no-yaiba-rengoku-vs-akaza.gif)
+
+
 
 [_palavras de Rengoku_](https://www.youtube.com/watch?v=OZQh9XqEXuA)
 <!--
